@@ -9,6 +9,9 @@ https://newatlas.com/avx-flying-car-darpa-tx/15750/
 
 https://bahrain.desertcart.com/products/52169782-cewaal-flying-car-helicopter-air-flight-land-travel-launch-missiles-flying-vehicles-great-gift-for-your-children
 
+22억
+https://youtu.be/a2tDOYkFCYo
+
 
 ```
 
