@@ -25,3 +25,27 @@ https://timesofindia.indiatimes.com/city/patna/chhapra-mans-flight-of-fancy-flie
 ```
 
 
+### RR - Rear engine Rear drive
+
+```
+
+https://youtu.be/s1_yhvmIu5g
+
+
+
+```
+
+
+
+### 터보샤프트 엔진과 로터 붙이는 컨셉
+
+```
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fmycustomhotwheels.com%2Fkombi-kopter-custom-skycrane%2F&psig=AOvVaw2UJvDbn-CaXOh9PvW9Qsyu&ust=1667225729393000&source=images&cd=vfe&ved=0CA0QjRxqFwoTCKjGvPyRiPsCFQAAAAAdAAAAABAm
+
+
+
+```
+
+
+
+
