@@ -50,6 +50,12 @@
 
 
 
+### 보고서
+- https://www.giikorea.co.kr/report/qyr1215266-global-microturbine-generators-market-report.html?CODE=qyr1215266-global-microturbine-generators-market-report.html&TYPE=0
+- https://www.jkosco.org/articles/pdf/VoPM/kosco-2019-024-04-1.pdf
+
+
+
 
 
 
