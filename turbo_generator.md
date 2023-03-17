@@ -46,6 +46,9 @@
 
 ### 소음 제저
 - noise canceleration
+- https://www.giikorea.co.kr/report/qyr1215266-global-microturbine-generators-market-report.html?CODE=qyr1215266-global-microturbine-generators-market-report.html&TYPE=0
+
+
 
 
 
